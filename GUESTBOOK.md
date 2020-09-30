@@ -68,5 +68,51 @@ Hi i'm a beginner, please give me some help with programming. XD
 ### Jack Bland
 I'm not very good at coming up with interesting facts about myself~
 
+### Clarissa Sandejas
+I'm Clary, I'm 19, and I never learned how to read
+
+### Wenxuan Mei
+ypa!!!!!!!!!!
+
+### Andrzej Szablewski
+Hi guys!
+
+### Yufei Gu
+Here is some thing and some words. 
+
+### Aryan Nevgi
+Hello!
+
+### Aaisha 
+hey!!
+
+### Loki Li
+Let's play CSGO XD
+
+### Mike Park
+Macs rule!
+
+### Minyi Lei
+Hi everyone
+
+### Max Bryant
+[Bladerunner](https://www.youtube.com/watch?v=NoAzpa1x7jU) is one of the best movies of all time. *(2049 was good too)*
+
+### Gabriel Turner
+This took my longer than it should have...
+
+### Sricharan Sanakkayala
+Check out one of my first projects! (It is a Chrome Extension!) [https://github.com/Sree5835/Legacy_New_Tab]
+
+### Daniel  
+Hi :P
+
+### Toma Kolev
+Hey github gang! Here is [my github page](http://www.github.com/Sup3rlum)
+I like mountain biking
+
+### Inesh Ahuja
+I'm inept
+
 ### Justin Koo
 Love cooking and travelling (if i have the money)
