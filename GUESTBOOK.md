@@ -110,3 +110,6 @@ Hi :P
 ### Toma Kolev
 Hey github gang! Here is [my github page](http://www.github.com/Sup3rlum)
 I like mountain biking
+
+### Inesh Ahuja
+I'm inept
