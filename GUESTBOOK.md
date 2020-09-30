@@ -21,4 +21,4 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 I love Chrisopher Nolan movies!!!
 
 ### Justin Koo
-I love cooking :P
+I love cooking :p
