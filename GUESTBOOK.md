@@ -35,5 +35,81 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 ### Suhail Merali
 [idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
+### Prithvi Kohli
+I make games!! here's my [twitter](https://twitter.com/PrithviKGames)
+
+### Vincent Lefeuve
+Nothing to say tho
+
+### Mateusz Krawczynski
+I spend too much time playing video games and enjoy programming some small personal projects, primarily in C#.
+
+### Danny Xing
+Nice to meet everyone and thanks for the Q&A! 
+
+### Passawis Chaiyapattanaporn
+Ready for allnighters....
+
+### Zhe Yu
+Love photography, love music.
+
+### Jason Ho
+Avatar the Last Airbender is the greatest animated series of all time no cap
+
+### Sam Lubrano
+Hi, I play guitar
+
+### Tan Wei Chain
+Hi! Fun fact! : My parents fumbled with the spelling of my name, it was supposed to be Chien instead of Chain 😆😆
+
+### Tianchi Chen
+Hi i'm a beginner, please give me some help with programming. XD
+
+### Jack Bland
+I'm not very good at coming up with interesting facts about myself~
+
+### Clarissa Sandejas
+I'm Clary, I'm 19, and I never learned how to read
+
+### Wenxuan Mei
+ypa!!!!!!!!!!
+
+### Andrzej Szablewski
+Hi guys!
+
+### Yufei Gu
+Here is some thing and some words. 
+
+### Aryan Nevgi
+Hello!
+
+### Aaisha 
+hey!!
+
+### Loki Li
+Let's play CSGO XD
+
+### Mike Park
+Macs rule!
+
+### Minyi Lei
+Hi everyone
+
+### Max Bryant
+[Bladerunner](https://www.youtube.com/watch?v=NoAzpa1x7jU) is one of the best movies of all time. *(2049 was good too)*
+
+### Gabriel Turner
+This took my longer than it should have...
+
+### Sricharan Sanakkayala
+Check out one of my first projects! (It is a Chrome Extension!) [https://github.com/Sree5835/Legacy_New_Tab]
+
+### Daniel  
+Hi :P
+
+### Toma Kolev
+Hey github gang! Here is [my github page](http://www.github.com/Sup3rlum)
+I like mountain biking
+
 ### Inesh Ahuja
 I'm inept
