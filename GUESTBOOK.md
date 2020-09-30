@@ -34,3 +34,6 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 
 ### Suhail Merali
 [idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+### Max Bryant
+[Bladerunner](https://www.youtube.com/watch?v=NoAzpa1x7jU) is one of the best movies of all time. *(2049 was good too)*
