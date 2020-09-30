@@ -94,3 +94,6 @@ Macs rule!
 
 ### Minyi Lei
 Hi everyone
+
+### Max Bryant
+[Bladerunner](https://www.youtube.com/watch?v=NoAzpa1x7jU) is one of the best movies of all time. *(2049 was good too)*
