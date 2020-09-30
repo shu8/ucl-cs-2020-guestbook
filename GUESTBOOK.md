@@ -34,3 +34,6 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 
 ### Suhail Merali
 [idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+### Sricharan Sanakkayala
+Check out one of my first projects! (It is a Chrome Extension!) [https://github.com/Sree5835/Legacy_New_Tab]
