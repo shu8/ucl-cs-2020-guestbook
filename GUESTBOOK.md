@@ -67,3 +67,6 @@ Hi i'm a beginner, please give me some help with programming. XD
 
 ### Jack Bland
 I'm not very good at coming up with interesting facts about myself~
+
+### Justin Koo
+Love cooking and travelling (if i have the money)
