@@ -100,3 +100,6 @@ Hi everyone
 
 ### Gabriel Turner
 This took my longer than it should have...
+
+### Sricharan Sanakkayala
+Check out one of my first projects! (It is a Chrome Extension!) [https://github.com/Sree5835/Legacy_New_Tab]
