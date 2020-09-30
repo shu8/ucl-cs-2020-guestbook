@@ -34,3 +34,7 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 
 ### Suhail Merali
 [idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+### Mike Park
+
+Macs rule!
