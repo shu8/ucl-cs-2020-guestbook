@@ -19,3 +19,7 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 
 ### Suraj Kothari
 I love Chrisopher Nolan movies!!!
+
+### Toma Kolev
+Hey github gang! Here is [my github page](http://www.github.com/Sup3rlum)
+I like mountain biking
