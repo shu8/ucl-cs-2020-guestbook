@@ -106,3 +106,7 @@ Check out one of my first projects! (It is a Chrome Extension!) [https://github.
 
 ### Daniel  
 Hi :P
+
+### Toma Kolev
+Hey github gang! Here is [my github page](http://www.github.com/Sup3rlum)
+I like mountain biking
