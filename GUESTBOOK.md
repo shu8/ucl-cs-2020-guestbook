@@ -116,3 +116,7 @@ I'm inept
 
 ### Justin Koo
 Love cooking and travelling (if i have the money)
+
+### Safiyya
+Tough time never last, only tough people last
+I also love food
