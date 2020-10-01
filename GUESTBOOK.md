@@ -125,3 +125,6 @@ Hi
 
 ### Yi Zheng
 Hello everyone!
+
+### Cheryl Lai
+I play the piano, drums and kalimba (but I still can't ride a bike someone please teach me ;;)
