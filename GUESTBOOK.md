@@ -122,3 +122,6 @@ I spent too long contemplating what to write, and then wrote about that instead.
 
 ### Mari 
 Hi
+
+### Cheryl Lai
+I play the piano, drums and kalimba (but I still can't ride a bike someone please teach me ;;)
